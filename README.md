@@ -1,6 +1,6 @@
 # Fun Math Resources
 
-## Videos
+## Video Channels
 
 ### Math Only
 
