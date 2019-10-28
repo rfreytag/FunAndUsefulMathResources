@@ -12,6 +12,7 @@
 * [Michael's Math Magic](https://www.youtube.com/playlist?list=PLL0602iqqyiw8hrS-ODF1Q3HmsKeblHzn)
 * [Machel Stevens Living](https://www.youtube.com/playlist?list=PLL0602iqqyizh9Z-OL2dSI5LssvfEL9zR)
 * [Natural Math](https://www.youtube.com/channel/UC5qgy3x8rSkIhTgxNqXb4WQ)
+* [James Tanton](https://www.youtube.com/channel/UCib_J32VI8rQI_LCFXn1XAA)
 
 ### Math and Science
 
